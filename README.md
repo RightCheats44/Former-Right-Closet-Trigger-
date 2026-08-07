@@ -5,5 +5,8 @@ Used By Me Against Some "Fake T2s"
 Good For Pojav Play 
 This Client Has No Gui
 
-R - Trigger
+# Usage 
+Put in Mods 
+
+R - Trigger 
 
