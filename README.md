@@ -1,4 +1,4 @@
-# Former Right Vloset Trigger
+# Former Right Closet Trigger
 Former Rights Private Trigger 
 
 Used By Me Against Some "Fake T2s" 
